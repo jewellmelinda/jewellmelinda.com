@@ -1,0 +1,2 @@
+# jewellmelinda.com
+Neutral networking and customer driven sales. We participate in sustainable and fair drop shipping sourcing for large retailers and individual buyers. Our company is a business to business marketing platform that celebrates collaboration and minority owned businesses. We also participate in several non- profit organizations. If you would like to know more go to our website and contact us.
